@@ -1,2 +1,2 @@
 Ссылка на Notion
-https://dimaxdd.notion.site/Lab3_TPO-f6150d8f60364f47867674bd3505e7c6?pvs=4
+https://www.notion.so/Lab3_TPO-e9027f03583741a68a66c7870710965c
